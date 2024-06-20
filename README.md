@@ -1,4 +1,4 @@
-![Banner beskrivelse](https://r2.fivemanage.com/q2bEREtzfFkIzxgfFpekX/Attire_banner.png)
+![Banner beskrivelse](https://cdn.discordapp.com/attachments/849684599156244480/1253051490847821977/jf_banner_8.png?ex=66751b63&is=6673c9e3&hm=cf1058055f356b578b707b9e1acf8df0859723533bf6a047a48a411a9a8dc09c&)
 
 
 # Attire
